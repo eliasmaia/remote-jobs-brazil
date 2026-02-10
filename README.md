@@ -13,14 +13,11 @@ Name | Website
 203pixels | https://www.linkedin.com/company/203-pixels/
 A2C | https://www.briviagroup.com.br/
 Abacomm | http://www.abacomm.com.br/
-Acesso Digital | https://acessodigital.gupy.io/
 Accenture | https://www.accenture.com/br-pt/careers
 Adeva | https://adevait.com/
-aftersale | https://www.indeedjobs.com/aftersale/jobs/
 Afya | https://afya.gupy.io/
 Agrid | https://www.linkedin.com/company/2769994/
 Akkurat | https://www.akkuratsofthouse.com/
-AlgaWorks | https://algaworks.recruiterbox.com/
 Alpargatas | https://alpargatas.gupy.io/
 Amazon | https://www.amazon.jobs/en/search?base_query=&loc_query=Brazil&country=BRA/
 Amparo Saúde | https://www.amparosaude.com.br/

@@ -29,7 +29,6 @@ BEON Tech | http://beon.studio/careers
 Beyond Soluções | https://imaginebeyond.com.br/
 BeYou | http://www.beyou.com.br
 Bidu Corretora | https://www.bidu.com.br/
-Bikoo | https://www.linkedin.com/company/9479291
 Blogo | https://getblogo.com
 BossaBox | https://bossabox.com/
 Brainn.co | https://brainn.co/
